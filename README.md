@@ -1,4 +1,4 @@
-<p align="center">haaaiii,, this is a wip,, im makin a strawpage c:</p>
+<p align="center">haaaiii,, i'm zam,, take a peek at my strawpage c:</p>
 <p align="center">⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔</p>
 <p align="center">     💜 ꒰ Zam / Rei ꒱ ⸝⸝⸝ ʚɞ </p>
 <p align="center">  ┊HeノAny .ᐟ Im a little shy,,┆ </p>
